@@ -1,2 +1,2 @@
 # EjerciciosCap1y2Libro
-Erick Misael Rojas Zambrano 19100249
+Misael Rojas Zambrano 19100249
